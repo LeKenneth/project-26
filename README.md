@@ -1,1 +1,1 @@
-# project-26
+Preheat oven to 350°F and lightly butter four (4 1/2-inch) springform pans. Stir together graham cracker crumbs, almonds, butter, and 3 tablespoons sugar in a medium bowl. Press firmly onto the bottom and halfway up the sides of prepared pans.
